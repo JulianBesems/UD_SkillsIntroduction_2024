@@ -13,3 +13,7 @@ Passcode: `wU!C?VB9`
 recording Wednesday 16/10
 https://ucl.zoom.us/rec/share/CK6WS3fe3GOBC8deyKwuJ3wp8cfa5iR5oJsVnhvaUBzBdDRCjla2BQefWYUhgCA9.SYz7w2KshkAQGQwA
 Passcode: `R#vGS3Gp`
+
+recording Friday 18/10
+https://ucl.zoom.us/rec/share/hkikpgJNdxU9yZAqa1a7uBMiawiK1nqc7F-W0k1STDsnPj_COur8kvRUkYBpwsxd.urNikBJpUW9UA7Qu
+Passcode: `T^Z6bGm%`
